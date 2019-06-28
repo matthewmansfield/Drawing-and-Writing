@@ -1,4 +1,4 @@
-#Entry Level Man
+Entry Level Man
 By Matthew Mansfield
 
 A toilet is backing?
@@ -40,7 +40,8 @@ I pause for a moment then shout out to you…
 
 Entry Level-Man to the rescue!
 
-#-----------------------------------------------
-From: https://matthewmansfield.me/blog/05/03/2017/entry-level-man/
+fin.
+
+https://matthewmansfield.me/blog/05/03/2017/entry-level-man/
 
 Learn more at: https://matthewmansfield.me
