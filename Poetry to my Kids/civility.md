@@ -66,6 +66,6 @@ The consequence justice, but civility the cause
 
 fin.
 
-https://matthewmansfield.me/blog/04/30/2017/civility/
+Source: https://matthewmansfield.me/blog/04/30/2017/civility/
 
 Learn more at: https://matthewmansfield.me

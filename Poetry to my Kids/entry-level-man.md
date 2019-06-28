@@ -42,6 +42,6 @@ Entry Level-Man to the rescue!
 
 fin.
 
-https://matthewmansfield.me/blog/05/03/2017/entry-level-man/
+Source: https://matthewmansfield.me/blog/05/03/2017/entry-level-man/
 
 Learn more at: https://matthewmansfield.me
